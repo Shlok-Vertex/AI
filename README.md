@@ -1,1 +1,1 @@
-# AI - (Artificial intelligence) 
+# AI - (Artificial intelligence) 🤖. 
